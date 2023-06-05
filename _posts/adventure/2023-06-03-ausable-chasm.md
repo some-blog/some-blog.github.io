@@ -44,10 +44,10 @@ By the end of the rapids, we decided it was time to call it a day and go back to
 ## So it's not worth it? 
 I did not say that. Our experience was frustrating as our expectations/excitement was much higher than where we felt things landed. That said, as mentioned in the summary, there are situations under which going could be a lot of fun. If you think you're one of those reasons, I highly recommend to go and learn from our mistakes. 
 
-# When to go 
+## When to go 
 When you go depends on what you want to do. If you're interested in rafting your experience will depending on when in the year you go will determine the rapid pacing/intensity. Spring is faster with it slowing all year until fall. Tubing starts in July so you can't go before that and If you're just going to hike then go before tubing opens up to limit who's around. 
 
-# What to do
+## What to do
 * Find a place to stay and show up the night before.
 * Get up early and aim to be at the chasm opening before 9 when the visitors center opens. 
 * It doesn't matter where you park, if you show up early the parking should be available and all over. 
