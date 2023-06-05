@@ -33,11 +33,8 @@ When you finish the guided tour, the guide tells you to go one direction if you'
 After this, we circled back to the visiters center and got a ticket to go rafting. Originally, we believed that rafting would be the same path we were hiking so the consideration was "why do the same trail twice where one time is in the water?" That was very wrong and when we realized it we decided to extend the day with rafting. Luckily, our benevolent corporate overlords were nice enough to avoid charging us for a whole new ticket set. Instead, they refunded our original tickets and purchased a ticket set with the addons, so all we had to do was pay the difference. From there it was a quick back and load up on the rafts. 
 
 
-
-View on our way to the rafts           |  View from the raft
-:-------------------------:|:-------------------------:
-![](/assets/photos/adventure-posts/2023-06-03-valley2.jpeg){: w="300" h="200" }  |  ![](/assets/photos/adventure-posts/2023-06-03-raft.jpeg){: w="300" h="200" }
-
+![](/assets/photos/adventure-posts/2023-06-03-raft.jpeg){: w="300" h="200" }
+*View from the raft as we launched*
 
 As we got on the raft, we noticed a strange couple who seemed to be pretty in love and having a great time. We didn't think much of it until we were crammed on a raft and could do nothing but smell the liquor oozing off them. As we float down the river and ride the rapids, we learned about the many floods that have destroyed the valley and how their construction techniques in the area have changed because of it. Most notably, was the interesting factoid that some trees near the side of the chasm walls grow down towards the water because the sunlights reflection is their primary source of light - it was a bummer that it was too overcast to really see/experience that. 
 
@@ -45,7 +42,7 @@ By the end of the rapids, we decided it was time to call it a day and go back to
 ![](/assets/photos/adventure-posts/2023-06-03-camping.jpeg){: w="300" h="200" }
 
 ## So it's not worth it? 
-I did not say that. As I said in the summary, there are situations under which going could be a lot of fun. If you think you're one of those reasons, I highly recommend to go and learn from our mistakes: 
+I did not say that. Our experience was frustrating as our expectations/excitement was much higher than where we felt things landed. That said, as mentioned in the summary, there are situations under which going could be a lot of fun. If you think you're one of those reasons, I highly recommend to go and learn from our mistakes. 
 
 # When to go 
 When you go depends on what you want to do. If you're interested in rafting your experience will depending on when in the year you go will determine the rapid pacing/intensity. Spring is faster with it slowing all year until fall. Tubing starts in July so you can't go before that and If you're just going to hike then go before tubing opens up to limit who's around. 
