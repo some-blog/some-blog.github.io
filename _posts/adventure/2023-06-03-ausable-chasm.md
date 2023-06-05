@@ -9,7 +9,7 @@ tags: [hiking]
 # Ausable Chasm, NY
 
 ## Summary  
-Out in the middle of nowhere New York, near the Canadian border and possibly nothing else, sits a crack in the Earth named Ausable Chasm. There are many trails to take through and around the chasm that allow you to experience the views up close and personal with the water or atop 100 foot cliffs over the rapids. 
+Out in the middle of nowhere New York, near the Canadian border and possibly nothing else, sits a crack in the Earth named Ausable Chasm. There are many trails to take through and around the chasm that allow you to get an up close and personal view of the water in the chasm, or to feel the height and magnitude of the crevice atop 100 foot cliffs over the rapids. 
 
 If you’re looking for a summer excursion with your family/kids (10-18 for best results) then this trip could be excellent - especially when tubing is open in July. If your hiking experiences do not include rapids, chasms, or waterfalls this could be excellent opportunity to add them. If you’re a moderately well hiked individual then this hike may leave you disgusted by a capitalist system employing tall fences and forced tours just to profit of people experiencing the planet. 
 
